@@ -23,3 +23,10 @@ Paraphrase 3:
 > .
 > .
 > . All this goes to show that you do not love yourself. Because if you did, you would love nature and accept its ways.
+
+## (On the perseverence and tenacity of the soul)
+Paraphrase 4:
+> Death is a relief from sense impressions. From the pulling of the strings that move the appetites. From the discursive
+> movements of the thoughts and from service of the flesh. It is shameful for the soul to be first to give way in life.
+> When your body has not given way. Care that you are made into a Caeser that succumbs to this affliction. That you are not
+> dyed with this dye.
