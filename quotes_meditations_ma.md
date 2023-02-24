@@ -1,5 +1,5 @@
 # Curated Excerpts from Meditations by Marcus Aurelius (the stoic philospher emperor of Rome circa 150 AD)
-## (On bearing calamity like someone who makes their on good fortune)
+## (On bearing calamity like someone who makes their own good fortune)
 Paraphrase 1:
 > Remember too on every occasion that leads you to vexation, to apply this principle: 
 > "Not that this is a misfortune, but that to bear it nobly is good fortune"
