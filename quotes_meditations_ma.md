@@ -53,9 +53,9 @@ Paraphrase 6:
 ## (On inner tranquility and envy/resentment of others)
 Paraphrase 7:
 > What then is to be valued? Not clapping of hands or tongues (praise from others). Suppose that you have given up this worthless
-> thing called fame. What remains of value? It is in my opinion to move or to restraint yourself in conformity to your own constitution. 
+> thing called fame. What remains of value? It is in my opinion to move or to restrain yourself in conformity to your own constitution. 
 > For in the end, this is where all employments or arts lead. For all art aims at this: that the thing that which is made should be
-> adapted for which it has been made. For both the wine planter looks after the horse breeder and he who trains the dogs seeks this end. And what should
+> adapted for which it has been made. For both the wine planter looks after the wine and the horse breeder and he who trains dogs seek this end. And what should
 > be the aim of the education of the youth? So if this sense of true value has been established, you will not seek anything else. You will cease
 > valuing a mass of other things as well. The alternative is not to be free nor sufficient in your own happiness or dispassionate. You will need
 > to be envious and suspicious of others -- those who are capable of taking these things from you and plot against those who have that which you
@@ -76,7 +76,7 @@ Paraphrase 9:
 > sensations. But he who has understanding considers his own acts to be his own good. It is in our power to have no opinions about things and not be
 > disturbed in our souls. For things in themselves do not have the power to enter into our judgement. 
 
-## (Universal goodness)
+## (On universal goodness)
 Paraphrase 10:
 > That which is not good for the swarm, neither is it good for the bee... 
 
@@ -90,7 +90,7 @@ Paraphrase 12:
 > Be not ashamed to be helped. For it is your job to do your duty like a soldier when there is an assault on the town. How then, 
 > if being lame you cannot mount up on the battlements by yourself but with the help of another, it is possible.
 
-## (On not letting future disturb you)
+## (On not letting the future disturb you)
 Paraphrase 13:
 > Do not let future things disturb you. For you will come to them, if it will be necessary. Having with you same reasons that which you
 > have at present.
