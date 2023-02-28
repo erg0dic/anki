@@ -97,7 +97,8 @@ Paraphrase 13:
 
 ## (On natural reasons)
 Paraphrase 14:
-> To the rational animal, an act that is according to nature is also an act according to reason. Be upright or be made upright.
+> To the rational animal, an act that is according to nature is also an act according to reason. 
+> Be upright or be made upright.
 
 ## (On truly loving humanity)
 Paraphrase 15:
@@ -108,6 +109,68 @@ Paraphrase 15:
 
 ## (On tolerable pain)
 Paraphrase 16:
-> The pain which is intolerable carries us off. But the pain that lasts a long time is tolerable. And mind maintains its own tranquility by retiring
+> The pain which is intolerable carries us off. But the pain that lasts a long time is tolerable. And the mind maintains its own tranquility by retiring
 > into itself. And the ruling faculty (thinking ability, your reasoning mind) is not itself damaged by pain. As for the parts which are harmed by pain, 
 > let them offer their opinion if they can. 
+
+## (On tolerable pain 2)
+Paraphrase 17:
+> For every pain, always note that there is no dishonor in it. Nor does it make the governing intelligence worse. 
+> Nor damage the intelligence, in either so > far as intelligence is rational nor so far as it is social. Indeed, 
+> in case of most pains, let this remark of Epicurus aid you: "*No pain is intolerable and everlasting if you 
+> bear in mind that it must have its limits and if you add nothing to it by your imagination. And remember this too, 
+> there are many things that we do not perceive as pain even though they are disagreeable to us. Being too hot, hungry 
+> etc. When you are disconcerted pain, say to yourself that your courage is failing you. You are yielding to pain.*"
+
+## (On loving humanity 2)
+Paraphrase 18:
+> No soul, the philosopher says, is deprived of the truth voluntarily. Consequently, it is only in the same way that 
+> it is deprived of justice, temperance > and benevolence and everything of the kind. It is most necessary to bear 
+> this in mind, for thus you will be most gentle to all.
+
+## (On loving humanity 3)
+Paraphrase 19:
+> Note that you do not project the same evil onto others that they project onto others out of resentment.
+
+## (On envy/resentment 2)
+Paraphrase 20:
+> Whatever the rational or the social facult finds to be neither intelligent or social, it correctly judges
+> that as inferior to itself.
+
+## (On inner tranquility 2)
+Paraphrase 21:
+> No man is ever tired to doing something useful. But it is useful to act according to nature. Do not then be 
+> tired acting according to nature. You gain that which is useful while it is also useful to others. 
+> The nature of the universe resolved to create itself and the world around it. Now either the new things come
+> by place or consequence of continuity or even the chief things that the ruling power of the universe directs 
+> its own movements by no rational principle. If this is remembered, it will make you most tranquil in many things.
+
+## (Advice from Plato: on viewing things from a higher place)
+Paraphrase 22:
+> He who is discoursing about men should also look closely at earthly things as viewed from some higher place.
+> ... Armies, agriculture, marriages, treaties, deserted places, courts of justice, barbarians, feasts, lamentations, 
+> markets. And see how all these form an orderly combination of countries. Consider the past. Such great changes of political 
+> supremacies, you can forsee also other things, for they will be of like form. And it is not possible that they should
+> deviate from the order of ways things take place now. To have contemplated human life for 40 years is the same as contemplating
+> human life for 10,000 years. What will you see?
+
+## (On the zen of Stoicism)
+Paraphrase 23:
+> The breeze which heaven has sent, we must endure and toil without complaint.
+
+## (On ruling principles for the self)
+Paraphrase 24:
+> Do not look around you to discover other men's ruling principles. Look straight to this: to what nature leads you.
+> Both the universal nature through the things that happen to you. And your own nature through the acts that must
+> be done by you. Every being ought to that its own constitution. And all other things are constituted for the sake 
+> of rational beings. And among the irrational things, the inferior are made for the superior. But rational things are created 
+> for the sake of one another. 
+> 1. The prime principle, then, in man's constitution is "social". 
+> 
+> 2. And second is not to yield to the persuasion
+> of the body. For it is in the peculiar office of the rational mind to circumsribe **itself**. And never to be overpowered
+> by the motions of the senses or the appetite of the flesh. And the intelligent motion claims superioritiy and does not allow
+> itself to be overpowered by others. And for good reason, for it is formed by nature to use all of them. 
+> 
+> 3. And the third thing is freedom from error and deception. Let then the ruling principle go straight on its own, 
+> holding fast to these things and it has what is its own.
