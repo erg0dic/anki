@@ -174,3 +174,48 @@ Paraphrase 24:
 > 
 > 3. And the third thing is freedom from error and deception. Let then the ruling principle go straight on its own, 
 > holding fast to these things and it has what is its own.
+
+## (On passing judgement and perceiving other's acts to/involving you)
+Paraphrase 25:
+> If any have offended against you, consider first: what is my relation to them? And that we are made for one another. And in another respect, I 
+> was made to be set over them: as a ram over a flock or a bull over a herd.
+> But examine the matter from first principles, from this:
+> 1. If all things are not mere atoms, it is nature that orders all things. If this is so, then the inferior things exist for the
+> sake of the superior. And these for the sake of one another.
+> 2. Consider what kind of men they are at table, in bed and so forth. Consider how much they are in compulsion with respect to 
+> their opinions and beliefs. And as for their acts, consider with what pride they do what they do.
+> 3. That if men do rightly what they do, then we do not ought to be displeased. And that if they do not do right, then it is
+> plain that they do so involuntarily and in ignorance. For every soul is unwillingly deprived of the truth, so also it is unwillingly
+> deprived of the power of behaving to each man according to what he deserves. Accordingly, men are pained when they are called unjust, 
+> ungrateful and greedy and in a word, wrongdoers to their neighbours.
+> 4. Consider that you also do many things wrong and that you are a man who has faults. And if you do abstain from certian faults, 
+> still you have the disposition though either through cowardice or concern for reputation or some such mean motive, you do abstain 
+> from such faults.
+> 5. Consider that you do not even understand whether men are doing wrong or not. For many things are done in reference to some context or
+> circumstance and in short, a man must learn a great deal in order to pass a correct judgement on another's act.    
+> 6. Consider when you are much vexed or grieved that man's life is only a moment. And after a short time, we are all laid out dead!
+> 7. That it is not men's act that disturb us, for they have their foundations in men's ruling principles. But it is our own opinions which
+> disturb us. Take away those opinions and resolve to dismiss your judgements about those acts as it they were something grievous and your
+>  anger is gone. How can I then take away those opinions? By reflecting that no wrongful act of another brings shame on you. For if you allow
+>  anything else to be more evil than those things that are shameful, you may fall into wrongdoing to avoid those evils and become a thief or
+>  someone of a worse character to achieve your worldly aims.
+>  8. Consider how much more pain is brought on us by the anger and vexation caused by such acts than the acts themselves.
+>  9. (*Tit for Tat, with concessions*) Consider that a good disposition is invincible if it be genuine and not an affected 
+>  smile or acting a part. For what will the most violent man do to you if you continue to be of a kind and respectful disposition to them.
+>  And when the opportunity offers, you gently admonish him and calmly correct his errors each time he trying to cause you harm by saying, 
+>  "Not so my child, we are constituted by nature to do something else. I will certainly not be injured but you are injuring yourself my child".
+>  ... Do this without any double meaning and without a rancour in your soul. Not you are lecturing him. Nor yet that any bystander may be
+>  impressed but aimed just for the man, even if others are present, in question.
+>  
+> **Remember these 9 rules, as if they were gift that you received from the muses and begin at last to be man while you live. You must equally
+> avoid flattering men or be vexed at them, for doing both are unsocial and lead to harm. And let this truth be known to you at the time of anger:
+> that to be moved by passion is not manly and that mildness and gentleness, as they are more agreeable to human nature, and so too are they more manly.**
+> 
+> And he who possesses these qualities, possesses strength, nerves and courage and not the man who is subject to fits of passion and discontent. For in the 
+> same degree as man's mind is nearer to freedom from all passion, in the same degree, it is also nearer to strength. As the sense of pain is a characteristic
+> of weakness, so also is anger. For he who yields to pain and he who yields to anger: both are wounded for both submit. 
+> 
+> And if you will, receive also a 10th present from the leader of the muses, Apollo, and it it this:
+> 10. To expect bad men not to do bad is madness. For he who expects this, desires an impossibility. And to allow men to behave such to other men and not
+> to expect them to do the same to you is irrational and tyrannical. 
+
