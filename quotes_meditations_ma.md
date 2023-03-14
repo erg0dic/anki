@@ -204,7 +204,7 @@ Paraphrase 25:
 >  smile or acting a part. For what will the most violent man do to you if you continue to be of a kind and respectful disposition to them.
 >  And when the opportunity offers, you gently admonish him and calmly correct his errors each time he trying to cause you harm by saying, 
 >  "Not so my child, we are constituted by nature to do something else. I will certainly not be injured but you are injuring yourself my child".
->  ... Do this without any double meaning and without a rancour in your soul. Not you are lecturing him. Nor yet that any bystander may be
+>  ... Do this without any double meaning and without a rancour in your soul. Not as if you are lecturing him. Nor yet that any bystander may be
 >  impressed but aimed just for the man, even if others are present, in question.
 >  
 > **Remember these 9 rules, as if they were gift that you received from the muses and begin at last to be man while you live. You must equally
@@ -219,3 +219,47 @@ Paraphrase 25:
 > 10. To expect bad men not to do bad is madness. For he who expects this, desires an impossibility. And to allow men to behave such to other men and not
 > to expect them to do the same to you is irrational and tyrannical. 
 
+## (On the importance of practice)
+Paraphrase 26:
+> Practise even in those things which you despair of accomplishing. For even the left hand, which is ineffectual for all other things for want of practice, holds the bridle more vigorously than the right hand for it has been practised in this.
+
+## (On the zen of stoicism 2)
+Paraphrase 27:
+> Consider the condition, both in body and soul, a man must be when he is overtaken by death. And consider the shortness of life. 
+> The boundless abyss of time: past and future. The feebleness of all matter. Contemplate the essence of things. The form of things,  
+> bare of their coverings. The purposes of actions. Consider what pain is in itself; what pleasure is; and death and fame. 
+> Who is to himself the cause of his own uneasiness. How no man is hindered by another. That everything is opinion. 
+
+> .. How ridiculous or strange he is who is surprised at anything that happens in life.
+
+## (On adaptively using the stoic principles)
+Paraphrase 28:
+> In the application of your princples, you must be like the Pancreatias: who boxes not like the gladiator who once lets fall his sword he loses 
+> but the other always has his hands and needs to nothing else but to use them (on the fly I suppose, spontaneously to suit the circumstance better).
+
+## (On problem solving)
+Paraphrase 29:
+> In everything that presents itself to you, always resolve it by dividing it into its form or essence, its purpose, its material and 
+> the time within which it must end.
+
+## (On distraction/temptation recovery 2)
+Paraphrase 30:
+> Perceive at last that you something within you that is better and more divine than the things that cause the various emotions and as 
+> if it were pull you by strings. What is there now in my mind? Is it fear or suspicion or desire or anything of the kind? First, do 
+> nothing inconsiderately or without a purpose. Second, make your acts refer to nothing else but to a social end. Consider that before 
+> long, you will be nobody and nowhere, nor anything that you see and the things which are living. For all things are formed by nature
+> to change and be turned and perished in order that other things in continuous succession may exist.  
+
+## (On controlling inner negativity)
+Paraphrase 31:
+> Consider that everything is opinion. And opinion is in your power. Take away then, when you choose your opinion and like mariner who has doubled 
+> the promontory, you will find calm, everything stable and a waveless bay.
+
+## (On passing judgement and perceiving other's acts to/involving you 2)
+Paraphrase 32:
+> When you are troubled by anything/someone, you have forgotten this: That all things happen according to the universal nature. And this: that a man's
+> wrongful act is nothing to you. Further you have forgotten this, that everything that always happens so, will happen so, now happens so everywhere, 
+> and will continue to happen so. And this, How close is the kinship between man and the whole human race: for it is a community not of blood 
+> but intelligence. That every man's intelligence is a god and flows from the diety. That nothing is man's own: that his child, body and his very soul
+> are from the diety. And forgotten this, that everything is opinion. And lastly every man lives at only that present instance and that death can
+> only lose that moment.  
