@@ -29,13 +29,13 @@ Paraphrase 3:
 Paraphrase 4:
 > Death is a relief from sense impressions. From the pulling of the strings that move the appetites. From the discursive
 > movements of the thoughts and from service of the flesh. It is shameful for the soul to be first to give way in life.
-> When your body has not given way. Care that you are made into a Caeser that succumbs to this affliction. That you are not
+> When your body has not given way. Care that you are not made into a Caeser that succumbs to this affliction. That you are not
 > dyed with this dye.
 
 ## (On distraction recovery)
 Paraphrase 5:
 > When circumstances drive you into some kind of disturbed state. Quickly return to yourself and do not continue out of tune
-> longer than the compulsion lasts. For you will have more mastery over the harmony by continually recurring to it.
+> longer than the compulsion lasts. For you will have more mastery over the harmony by continually recurring to yourself.
 > .... not to be pulled about by desires like puppets on a string.
 
 ## (On sniffing out superficial falsehood/adulation)
